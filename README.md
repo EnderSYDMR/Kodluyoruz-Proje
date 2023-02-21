@@ -1,2 +1,0 @@
-# Kodluyotuz Proje
- 
